@@ -1,14 +1,13 @@
-Hi! I'm Jade!
+Hello! I'm TheStarlightCoder!
 
-Just Here To Play FNF mods :]
+![Bnuys](https://github.com/user-attachments/assets/79af8965-5a41-4257-a121-91f5d9bc2137)
+Bunys.
 
-I like to borrow mods and mess around with them for fun. (Usually, I just change small things like the bf model or smth.)
+Current Status: Creating Something Stellar
 
-Coding Status: Mod in progress (IDK WHAT IM DOING, SOMEONE HELP :sob:)
+Someone help me, idk what I'm doing vro :sob:
 
-me fr:
-
-![anxiety energy](https://github.com/StelleTheDemon/StelleTheDemon/assets/162179352/55735123-2c0b-4128-8c96-1b90ab38d799)
+You are my fren now :3
 
 <!---
 StelleTheDemon/StelleTheDemon is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
